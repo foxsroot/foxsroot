@@ -1,3 +1,3 @@
-Hi, I’m f0x$root. I'm a computer science student and I'm interested in cybersecurity.
+Computer science student and cybersecurity enthusiast.
 
 My instagram : @foxsroot
